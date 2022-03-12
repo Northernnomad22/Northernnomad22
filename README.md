@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Northernnomad22
-- 👀 I’m interested in ...the free world for a multi variety of people 
-- 🌱 I’m currently learning ...
+- 👀 I’m interested in hardware and software hacking and molding the free world for a multi variety of people 
+- 🌱 I’m currently learning ...alot of basic operations and functions
 - 💞️ I’m looking to collaborate on ...a global movement aiming at achieving a universal resource reform  and dispersion chain to provide Canadian with resources second to none and manufactured in real time using renewable reusable materials 
 
 - 📫 How to reach me cybercypher@gmail.com 
